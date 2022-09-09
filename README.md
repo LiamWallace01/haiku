@@ -1,3 +1,10 @@
 # haiku
 random repository ( or repop) with some text
-gett your moneys worth
+
+What are your favourite chips
+
+-Vinegar
+-Plain
+Sour cream & onion
+
+
